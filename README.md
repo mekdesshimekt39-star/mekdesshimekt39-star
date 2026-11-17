@@ -1,28 +1,3 @@
-Gmail is better on the app
-Secure, fast & organized email
-Open
-(no subject)
-
-mintesnot gizaw
--- Mintesnot Gizaw, PhD , MSc , MBA Assistant Professor of Energy Technology Department of Environmental Engineering AASTU,Ethiopia Email: mintesno...
-M
-Mekdes Shimekt
-https://github.com/settings/profile
-M
-Mekdes Shimekt
-https://github.com/mekdesshimekt39-star
-
-mintesnot gizaw
-to me
-0 minutes agoDetails
-  <div align="center"><img src="profile-photo.jpg" alt="Mekdes Shimekt Biratu — professional portrait" width="132" />
-Mekdes Shimekt Biratu
-Branch Manager | Banking Professional
-
-📍 Addis Ababa, Ethiopia
-
-12+ years of banking experience
-
 
 
 </div>
