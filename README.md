@@ -50,9 +50,9 @@ Public-sector experience · Oct 2013–Jan 2014
 **BA in Management**  
 Jimma University · 2013
 
-**MBA studies**  
+**Master of Business Administration (MBA) **  
 Leadstar College of Management and Leadership  
-Coursework and thesis requirements completed; December 2020 college letter.
+Coursework and thesis requirements completed; December 2020 
 
 ## 🎯 Expertise
 
