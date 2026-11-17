@@ -1,8 +1,8 @@
 <div align="center">
 
-<img src="assets/banking-banner.png" alt="Mekdes Shimekt Biratu — Banking, Leadership and Operational Excellence" width="100%" />
+<img src="banking-banner.png" alt="Mekdes Shimekt Biratu — Banking, Leadership and Operational Excellence" width="100%" />
 
-<img src="assets/profile-photo.jpg" alt="Professional portrait of Mekdes Shimekt Biratu" width="185" />
+<img src="profile-photo.jpg" alt="Professional portrait of Mekdes Shimekt Biratu" width="185" />
 
 # Mekdes Shimekt Biratu
 ### Branch Manager · Banking Operations · Risk & Internal Control
