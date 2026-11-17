@@ -52,7 +52,7 @@ Jimma University · 2013
 
 **MBA studies**  
 Leadstar College of Management and Leadership  
-Coursework and thesis requirements completed; CGPA **3.33**, per the December 2020 college letter. Final award certificate not provided.
+Coursework and thesis requirements completed; December 2020 college letter.
 
 ## 🎯 Expertise
 
